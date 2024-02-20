@@ -1,1 +1,2 @@
 # WillStephen27
+Here's a little rhyme for all you furries, Your obsession with animals is quite worrisome and murky, You may think you're cool with your nerd coder skills, But really, you're just awkward and mentally ill. With your animal costumes and antisocial ways, I bet even the animals cringe at your displays. So go ahead, embrace your disabled state, But just remember, being a furry is not something to celebrate.
